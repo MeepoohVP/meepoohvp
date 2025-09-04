@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **poohvp1147@gmail.com**
 
-- 📄 Know about my experiences [https://northern-club-1ae.notion.site/Portfolio-2605d677bda980819187c468e68d7147](https://northern-club-1ae.notion.site/Portfolio-2605d677bda980819187c468e68d7147)
+- 📄 Know about my experiences [portfolio](https://northern-club-1ae.notion.site/Portfolio-2605d677bda980819187c468e68d7147)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
